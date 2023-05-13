@@ -9,9 +9,6 @@ I like communication skills during work,
 straightforwardness, easy communication and a positive attitude.
 
 I love to play basketball and interesting educational games, I work on my development by studying programming. I am fond of game development and studying the Unreal Engine 5 game engine.
-Hardworking persistent kind non-conflict
+Працьовитий наполегливий добрий неконфліктний
 
-Here are links to my portfolio with some projects:
 
-https://freelance.ru/raygard01
-https://www.fl.ru/users/raygard-kuper/portfolio
